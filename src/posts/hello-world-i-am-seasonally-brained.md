@@ -6,7 +6,7 @@ tags:
   - hello-world
   - blog
 ---
-Recently, I was listening to (Debbie Millman interview Seth Godin on the Design Matters podcast)[https://www.designmattersmedia.com/podcast/2020/Seth-Godin]. Seth wrote on  his new book, The Practice—"a milestone text exploring creativity and the sheer power of doing the work and putting it out into the world." He said something that hit hard, making me want to get this going to start writing.
+Recently, I was listening to [Debbie Millman interview Seth Godin on the Design Matters podcast]([https://www.designmattersmedia.com/podcast/2020/Seth-Godin). Seth wrote on  his new book, The Practice—"a milestone text exploring creativity and the sheer power of doing the work and putting it out into the world." He said something that hit hard, making me want to get this going to start writing.
 
 >"It doesn't exist, if it doesn't ship."
 
