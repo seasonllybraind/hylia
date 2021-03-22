@@ -1,6 +1,6 @@
 ---
 title: Hello World; I'm seasonally brained.
-date: '2021-22-03'
+date: '2021-03-22'
 tags:
   - introduction
   - hello-world
