@@ -40,20 +40,16 @@ I went through all the various things, "You know, the thing. When you have a gro
 
 This happens so often, I've grown to have multiple categories and descriptions of the ways words disappear, or at least, how they feel when they do.
 
-- **...like watching a video of a sonic boom**
-
+**...like watching a video of a sonic boom**
 This is when the thoughts and words don't match. I'm speaking or trying to wait to speak, then my thoughts go farther than my words, and all of a sudden: they're gone. The words took off, the sound catching up, the video—me—seeing nothing there.
 
-- **...like catching a fly with your hands**
-
+**...like catching a fly with your hands**
 This is when, while talking and working towards a point, the point starts moving all over the place. The context needed to get to the point buzzes around, just out of reach. You can't stop talking because then you'll lose sight of the fly.
 
-- **...like a will'o'wisp**
-
+**...like a will'o'wisp**
 It skirts by, quickly moving, almost missing the sight of it. But it's bright, it's glowing, and I know it'd be a magical moment to catch. During the chase, I get lost in the woods: off path and disappointed at the missed language.
 
-- **...like people's worst nightmare**
-
+**...like people's worst nightmare**
 For some, one of the worst things is studying hard for a test and when you show up: you know nothing. This happens after—surprise—waiting, and hearing my name. Even though I expected it, was listening and paying attention, my name shocks me into wordlessness.
 
 ## Embracing the experience
