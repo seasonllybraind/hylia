@@ -45,4 +45,4 @@ Water flows: around, through, in, and all sorts of other prepositions. The thing
 
 I've learned my preferred flows through the day, and when things come up, I have other transitions in the day to come back into flow.
 
-## Pursuing flow and imperfection is ultimately a pursuit in practice kindness to myself. It'll be a life-long practice.
+## Pursuing flow and imperfection is ultimately a pursuit of a life-long practice in self kindness.
