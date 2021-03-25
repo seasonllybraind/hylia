@@ -38,7 +38,7 @@ Like I need to have my planned spontaneous times sometimes, I also have come to 
 
 A few examples of how this looks like in real life:
 
-### **Speaking & Presentations**  
+### Speaking & Presentations
 Most of the times I've spoken or given presentations, they've been seemingly spontaneous, sprouting from desperate calls for volunteers. Sometimes I raised my hand, sometimes I was voluntold.
 
 I've never reflected at the total amount of preparation and lessons I've had on public speaking over the years. It's the forgetfulness of the "now", but the skills and preparation are underneath.
@@ -47,7 +47,7 @@ The two most memorable of those courses, for my own record, was my first—a com
 
 In the former, I brought the family dog in as an interactive prop. The latter, the first presentation I swore in—to feel how it fit.
 
-### **Moving to the Netherlands**  
+### Moving to the Netherlands
 Since I studied World History my first or second year of highschool, I've always been interested in the vastness of interesting things. I grew up as part of a small beach community, but there was a whole planet of possible adventures.
 
 Six months before graduating University, I was waking up at three or four o'clock in the morning: sending cold emails to design agencies, firms, and studios around the world. I wanted to travel, learn, and experience all sorts of experiences I had always read about or hadn't even new existed.
