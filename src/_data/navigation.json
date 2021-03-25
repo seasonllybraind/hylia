@@ -6,13 +6,18 @@
       "external": false
     },
     {
-      "text": "Writings",
-      "url": "/posts",
-      "external": false
-    },
-    {
       "text": "Chrysalis",
       "url": "https://jonathanstephens.us/chrysalis",
+      "external": true
+    },
+    {
+      "text": "Twitter",
+      "url": "https://twitter.com/seasonllybraind",
+      "external": true
+    },
+    {
+      "text": "Photos",
+      "url": "https://jonathanstephens.darkroom.tech",
       "external": true
     }
   ]
