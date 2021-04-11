@@ -1,4 +1,4 @@
-perseverance---
+---
 title: Questions on Management as a Designer in Tech
 date: '2021-04-11'
 tags:
