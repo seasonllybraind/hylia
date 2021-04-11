@@ -16,7 +16,7 @@ I've had many moments of reflection, frustration, and discussion about this exac
 
 Because I've also received this inquiry multiple times, I'm writing here to be able to share with others more easily, outside of DM's.
 
-In light of my ADHD and Autism, the challenges and how I've experienced this transition can't necessarily be decoupled from it. I'm now realizing that my successes and challenges come from these lenses.
+In light of my neurodivergences, the challenges and how I've experienced this transition can't necessarily be decoupled from it. I'm now realizing that my successes and challenges come from these lenses.
 
 So! To the questions.
 
