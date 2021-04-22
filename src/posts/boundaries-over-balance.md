@@ -51,8 +51,8 @@ Only the individual has the power to create, define, and communicate their own b
 - They require reflection to create, especially for one's self.
 - They're the limits, the lines _we_ say can or cannot be crossed.
 - They manage personal expectations and expectations others put onto us.
-- When set, they foster respect for self, equally respecting other's.
-- With boundaries, we operate towards equilibrium—not constantly pursuing unattainable balance.
+- Defining them fosters respect for self and others.
+- With them, we operate towards equilibrium—not constant pursuit of unattainable balance.
 - When set, we create personal micro-habitats to thrive.
 
 
