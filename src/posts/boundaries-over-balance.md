@@ -56,4 +56,5 @@ Only the individual has the power to create, define, and communicate their own b
 - When set, we create personal micro-habitats to thrive.
 
 
-## Be like moss. Use layers of boundaries to create a greenhouse, creating _your_ environment towards something better than balancing solely work with life.
+## Be like moss.
+### Use layers of boundaries to create a greenhouse, creating _your_ environment towards something better than balancing solely work with life.
