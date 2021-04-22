@@ -10,7 +10,7 @@ tags:
   - work
   - blog
 ---
-Over the  years, I've spoken about the inappropriateness of pursuing work-life balance. The thing being: life is not about work, and work isn't about life. Life, in itself, is something each being moves through, ebbing and flowing &emdash; forward.
+Over the  years, I've spoken about the inappropriateness of pursuing work-life balance. The thing being: life is not about work, and work isn't about life. Life, in itself, is something each being moves through, ebbing and flowing—forward.
 
 ## Work-life balance doesn't exist
 A balanced teeter-totter is boring. Pursuing balance is a futile effort, constantly working towards something that's unachievable. One event can throw everything out of whack and the stress of being imbalance can make things even worse.
@@ -35,7 +35,7 @@ One of the most personally impactful episodes was with [Dr. Robin Wall Kimmerer 
 
 Once; twice; thrice.
 
-There was one moment that struck and stuck &emdash; HA! Puns &emdash; a chord.
+There was one moment that struck and stuck—HA! Puns—a chord.
 
 Moss is an extraordinary plant. They can grow on anything because of how they attach themselves to things. They grow _everywhere_ because they take advantage of physics, using extremely thin boundary layers, operating in the stillness of air, capturing moisture to germinate, spread, and grow.
 
