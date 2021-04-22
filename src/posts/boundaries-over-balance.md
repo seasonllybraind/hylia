@@ -39,7 +39,7 @@ There was one moment that struck and stuck &emdash; HA! Puns &emdash; a chord.
 
 Moss is an extraordinary plant. They can grow on anything because of how they attach themselves to things. They grow _everywhere_ because they take advantage of physics, using extremely thin boundary layers, operating in the stillness of air, capturing moisture to germinate, spread, and grow.
 
-Dr. Killemer describes mosses as:
+Dr. Kimmerer describes mosses as:
 > A little green house that occurs naturally over every surface, a place which is warmer, moister, and as it happens, richer in carbon dioxide than any place else, and that's where the mosses live. They’re exploiting these little microhabitats, rather than trying to dominate and control the habitat, they're taking advantage of the laws of physics and exploiting these naturally occurring little greenhouses.
 
 They're using these boundary layers to thrive in extreme hostile environments, the first to "colonize land 350 million years ago." Sophisticated simplicity.
