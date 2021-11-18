@@ -37,19 +37,20 @@ This week, I'm celebrating completion of 33 years on Planet Earth. So, in the cl
 20. It’s okay to not know. Ask questions curiously, authentically, and tenaciously.
 21. Health, family, and friends come first. Then work.
 22. Say no more than you say yes; [“Guard your yes.”](https://blackgirllostkeys.com/adhd/how-to-guard-your-yes/)
-23. Create boundaries.More will always be asked of you; good enough is good enough.
-24. Rest, relax, Recharge. Rest up so you can show up.
+23. Create boundaries. More will always be asked of you; good enough is good enough.
+24. Rest, Relax, Recharge. Rest up so you can show up.
 25. Be open for the journey, see where it takes you. It can be quite the adventure.
 26. Put things to paper; the documentation process creates clarity, and can be shared.
 27. Ask for feedback & critique, but understand you don't always have to act on it.
 28. Emotions & feelings are valid data; reflect on what they're telling you.
 29. "Soft skills" are some of the hardest & most important skills; far too often disregarded or ignored.
 30. It's okay to let go of things or quit, that allows you to pick up others that can bring more value.
-31. Regularly reflect on your Self, Life, and Pursuits.
+31. [Life is an occasion; rise to it.](https://www.imdb.com/title/tt0457419/)
 32. Change is constant; each day is different, layered with lessons & impact of the past.  
 33. Be kind.
 
 # References
 - `#12` comes from the [Disability Activists & Movement](https://en.wikipedia.org/wiki/Nothing_About_Us_Without_Us) from the 1990's; extremely applicable to Design, User Research, Product Development, and most things when trying to create _for_ rather than _with._
 - `#22` is a mantra from [Renee Brooks](https://www.linkedin.com/in/blackgirllostkeys/)—a Mental Health Advocate, Blogger, Speaker, behind Black Girl Lost Keys. It's a lesson I learned from her, read on, and taken to heart. You can buy [stickers, t-shirts,](https://blackgirllostkeys.com/?s=guard+your+yes&post_type=product) and [her book](https://blackgirllostkeys.com/product/time-to-guard-your-yes-bundle/) about this exact thing!
+- `#31` is a quote from one of my favorite movies; one that I've revisited throughout the years: Mr. Magorium's Wonder Emporium. I resonate with the titular character, his view on life, and seeing the magic in everyone & every day.
 - `#33` can be read more about, and is one of those lessons I've tattooed to myself, on my post titled, ["A Goodbye; A Look Back; A Thanks; & A Request."](https://www.linkedin.com/pulse/goodbye-look-back-thanks-request-jonathan-stephens/)
